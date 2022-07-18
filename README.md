@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Reginagee
+- 👀 I’m interested in ... product design
+- 🌱 I’m currently learning UI/UX
